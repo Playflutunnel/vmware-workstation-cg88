@@ -1,4 +1,4 @@
-# 
+# updated VMware Workstation for PC | VMware Workstation for Windows Integration | resource-allocation + seamless-mode offers the most advanced VMware Workstation for PC | VMware
 
 
 
